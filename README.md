@@ -1,0 +1,7 @@
+![1](https://github.com/Puzan789/kathmandu1yearweather/assets/100143567/878213a1-4cb4-46ea-ae7d-9bd135a758f8)
+![2](https://github.com/Puzan789/kathmandu1yearweather/assets/100143567/a56e2b0d-6ecb-43d3-bc16-492658c42a18)
+![3](https://github.com/Puzan789/kathmandu1yearweather/assets/100143567/4153bcd2-92ae-4118-9524-25c29192c04b)
+![4](https://github.com/Puzan789/kathmandu1yearweather/assets/100143567/47fb9e05-027d-4387-9e5d-d8e2257f9ab6)
+![5](https://github.com/Puzan789/kathmandu1yearweather/assets/100143567/f89c1478-397f-4a97-9e38-5625699d3459)
+![6](https://github.com/Puzan789/kathmandu1yearweather/assets/100143567/3845a00e-1238-4017-a613-0a535134164e)
+![7](https://github.com/Puzan789/kathmandu1yearweather/assets/100143567/217bc4e8-2b0c-4159-9358-bb163a773663)
